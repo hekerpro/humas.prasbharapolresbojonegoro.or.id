@@ -1,1 +1,0 @@
-# humas.prasbharapolresbojonegoro.or.id
